@@ -54,7 +54,7 @@ Tell us which **version** and **build** you're on (both are on the
 *Profile → App version* screen) along with what happened.
 
 - 📞 +265 884 451 260 · +265 992 296 550
-- 🌐 [st.simeonmataka.me](https://st.simeonmataka.me)
+- 🌐 [smiletechnologies.com](https://smiletechnologies.com)
 
 ---
 
